@@ -1,1 +1,2 @@
-# SiMaXinFeng.github.io
+# error 404 Not Found
+[doge]
